@@ -1,3 +1,3 @@
 # CV
 
-https://bit.ly/3nMOLKa
+https://bit.ly/3jSqE0f
